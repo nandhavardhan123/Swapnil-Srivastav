@@ -1,3 +1,3 @@
 # Swapnil-Srivastav
 Created by Nanda Vardhan Reddy
-and pankaj patidar
+and pankaj patid
